@@ -1,1 +1,1 @@
-So many things learned mainly how to navigate and move through folders, create directories , modify notes.
+How to modify, how to navigate, how to create.
